@@ -1,5 +1,5 @@
-## Hi there 👋
+## Hey 👋
 
-![Mikasa Ackerman,  Tears, Gif,](Mikasa Ackerman, Tears, Gif,.gif)
+![Mikasa Ackerman,  Tears, Gif,](https://github.com/user-attachments/assets/8b08337f-cb19-4289-b2a7-3f404af07ec6)
 
-Description
+Im very lifehappy guy :D
