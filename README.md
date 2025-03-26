@@ -4,4 +4,4 @@
 
 life imitates life//
 
-
+im beginner .net developer;
